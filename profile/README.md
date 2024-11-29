@@ -24,3 +24,7 @@
 4. **Share**: Let friends enjoy your personalized Sprunki-inspired tunes.
 
 *Note: This is a fan-made mod for Incredibox, created by samerysio.*
+
+https://github.com/dustruco
+
+https://github.com/ikcomplo
